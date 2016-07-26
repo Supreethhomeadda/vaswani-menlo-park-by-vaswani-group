@@ -1,0 +1,2 @@
+# vaswani-menlo-park-by-vaswani-group
+Spread across 6 acres of land area. This apartment project includes 330 units with an 2 &amp; 3 BHK. SBA ranges from 1200 - 1815 Sq Ft. It consists of 6 towers and each tower consists of G+14 Floors. Rate per Sq Ft is Rs 5000/-. Basic price starts from INR 63.45 Lakhs. For More Info Visit Our Site &amp; Contact Us:  http://vaswanimenlopark.location-price-bangalore.com/  8884747474
